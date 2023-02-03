@@ -1,5 +1,5 @@
-### Una Schneck
-PhD Candidate MIT | NSF Fellow | Dean of Science at MIT Fellow | Planetary Geomorphology 🪐 | Icy Moons 🧊
+## Una Schneck
+#### PhD Candidate MIT | NSF Fellow | Dean of Science at MIT Fellow | Planetary Geomorphology 🪐 | Icy Moons 🧊
 
 For more about me: http://ugschneck.com/
 
