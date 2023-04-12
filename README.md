@@ -7,3 +7,6 @@
 About me: http://ugschneck.com/
 
 Email: ugschneck@gmail.com
+
+For codes used in my papers, check the list Schneck et al. under stars
+
