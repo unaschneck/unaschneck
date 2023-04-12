@@ -1,4 +1,4 @@
-## Una Schneck | PhD Candidate | MIT 
+## Una Schneck | PhD Candidate | Planetary Science | EAPS | MIT 
 #### NSF Fellow | Dean of Science at MIT Fellow 
 #### Planetary Geomorphology 🪐 | Fluid Dynamics 🌊 | Icy Moons 🌕
 
