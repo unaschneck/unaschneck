@@ -8,5 +8,4 @@ About me: [ugschneck.com](https://ugschneck.com/)
 
 Email: ugschneck@gmail.com
 
-For codes used in my papers, check the list Schneck et al. under stars
 
