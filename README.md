@@ -6,6 +6,6 @@
 
 About me: [ugschneck.com](https://ugschneck.com/)
 
-Email: ugschneck@gmail.com
+Contact me: ugschneck@gmail.com
 
 
