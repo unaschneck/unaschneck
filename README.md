@@ -1,5 +1,5 @@
 ## Una Schneck | PhD Candidate | Planetary Science | EAPS | MIT 
-#### NSF Graduate Research Fellow | Dean of Science at MIT Fellow 
+#### NSF Graduate Research Fellow | Dean of Science at MIT Fellow | MathWorks Science Fellow
 #### Planetary Geomorphology 🪐 | Fluid Dynamics 🌊 | Icy Moons 🌕
 
 <p><img align="left" src="https://github-readme-stats-sigma-five.vercel.app/api/top-langs?username=unaschneck&show_icons=true&locale=en&layout=compact" alt="unaschneck" /></p>
